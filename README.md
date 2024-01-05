@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Viveknavana
-- 👀 I’m interested in Project Managemwnt
+- 👀 I’m interested in...
 - 🌱 I’m currently learning 3rd year IT in ANITS
 - 💞️ I’m looking to collaborate on Microsoft
 - 📫 How to reach me linkedin
